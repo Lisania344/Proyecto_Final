@@ -1,3 +1,5 @@
+**FANESCA**
+
 La fanesca es un plato tradicional ecuatoriano, especialmente asociado con la Semana Santa y la Cuaresma. Es una sopa espesa y rica, que representa una de las expresiones más complejas y simbólicas de la cocina ecuatoriana, combinando ingredientes de origen indígena y europeo.
 
 La fanesca se prepara con una base de granos frescos como el maíz, habas, fréjol, lentejas, arvejas, y chochos, a los que se les añade calabaza (zapallo) y varios tipos de tubérculos, como la papa y el melloco. El caldo se enriquece con leche, queso, y crema, y se condimenta con especias como el comino, el ajo, y el achiote, que le da un color dorado.
