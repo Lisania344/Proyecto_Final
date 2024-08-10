@@ -10,8 +10,13 @@ Desde el marisco fresco de la costa, como el famoso *ceviche*, hasta los platos 
 
 
 -[Encebollado](encebollado.md)😊 
--[Locro de papas](locro.md)😎 
+
+-[Locro de papas](locro.md)😎
+
 -[Fanesca](fanesca.md)🫡 
+
 -[Hornado](hornado.md)😶‍🌫 
--[Llapingachos](llapingachos.md)😜 
+
+-[Llapingachos](llapingachos.md)😜
+ 
 -[Cuy asado](cuy.md)🤠 
