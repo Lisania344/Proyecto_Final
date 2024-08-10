@@ -7,7 +7,7 @@ La gastronomía de Ecuador es un reflejo vibrante de su diversidad cultural y ge
 
 
 Desde el marisco fresco de la costa, como el famoso *ceviche*, hasta los platos abundantes de la sierra, como el *locro de papas*, la cocina ecuatoriana combina sabores indígenas con influencias españolas y africanas. Los platos son sencillos pero llenos de sabor, utilizando ingredientes naturales y técnicas tradicionales que han sido transmitidas de generación en generación.
-
+A continuación, te presentamos algunos de los mas famosos platillos que ofrece nuestro Ecuador.
 
 
 
