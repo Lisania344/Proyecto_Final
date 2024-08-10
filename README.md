@@ -1,4 +1,4 @@
-*ECUADOR ES UNA DELICIA*😁😁😁
+**ECUADOR ES UNA DELICIA**😁😁😁
 
 La gastronomía de Ecuador es un reflejo vibrante de su diversidad cultural y geográfica. Este pequeño país sudamericano ofrece una increíble variedad de platos que varían según las regiones: la costa, la sierra, la Amazonía y las islas Galápagos. Cada zona del país tiene sus propias especialidades, basadas en ingredientes frescos y locales.
 
@@ -9,9 +9,9 @@ Desde el marisco fresco de la costa, como el famoso ceviche, hasta los platos ab
 
 
 
--[Encebollado](encebollado.md)😊
--[Locro de papas](locro.md)😎
--[Fanesca](fanesca.md)🫡
--[Hornado](hornado.md)😶‍🌫
--[Llapingachos](llapingachos.md)😜
--[Cuy asado](cuy.md)🤠
+-[Encebollado](encebollado.md)😊 \\
+-[Locro de papas](locro.md)😎 \\
+-[Fanesca](fanesca.md)🫡 \\
+-[Hornado](hornado.md)😶‍🌫 \\ 
+-[Llapingachos](llapingachos.md)😜 \\
+-[Cuy asado](cuy.md)🤠 \\
