@@ -4,7 +4,7 @@ La fanesca se prepara con una base de granos frescos como el maíz, habas, fréj
 
 Uno de los ingredientes clave es el bacalao seco, que se rehidrata y desmenuza, aportando un sabor salado que contrasta con la dulzura de los vegetales. La fanesca se sirve adornada con rodajas de huevo duro, empanadas de viento (empanadas pequeñas rellenas de queso y fritas), plátano maduro frito, y cebolla encurtida.
 
-![fanesca](fanesca.jpeg)
+![fanesca](imagenes/fanesca.jpeg)
 
 Cada hogar y región tiene su propia receta de fanesca, pero en general, es un plato que simboliza la unión, la diversidad de los productos de la tierra, y la tradición familiar durante la Semana Santa en Ecuador.
 
