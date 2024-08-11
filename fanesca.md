@@ -23,3 +23,5 @@ Chefs contemporáneos están reinventando la fanesca para adaptarla a las prefer
 
 **Fanesca y Turismo Gastronómico:**
 La fanesca se ha convertido en una atracción turística importante durante la *Semana Santa* en Ecuador, promoviendo la rica tradición culinaria del país. Restaurantes y festivales gastronómicos destacan este plato como una experiencia cultural única, ofreciendo a los visitantes la oportunidad de disfrutar de una receta ancestral en su contexto tradicional y contemporáneo.
+
+[Video tutorial de la preparación de la fanesca](https://www.youtube.com/watch?v=WSlDzsVy2io)
