@@ -16,4 +16,4 @@ El nombre del plato proviene del uso destacado de la cebolla roja, que se macera
 
 **Encebollado y Turismo Gastronómico:** El encebollado ha ganado popularidad entre los turistas que buscan experiencias auténticas de la cocina ecuatoriana. En las regiones costeras, es común encontrarlo en restaurantes que ofrecen el plato como parte de un menú que celebra la rica tradición culinaria del país. Esta creciente fama contribuye a la promoción del encebollado como un ícono de la gastronomía ecuatoriana en el ámbito internacional.
 
-[Video tutorial de la preparación del encebolado](https://www.youtube.com/watch?v=AhJpRnQqcVs&t=52s)
+[Video tutorial de la preparación del encebollado](https://www.youtube.com/watch?v=AhJpRnQqcVs&t=52s)
