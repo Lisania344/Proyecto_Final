@@ -19,3 +19,5 @@ El hornado no solo es un festín para el paladar, sino también un reflejo de la
 **Innovaciones e Interpretaciones:** Chefs contemporáneos están explorando nuevas formas de presentar el hornado, combinando técnicas tradicionales con enfoques modernos. Algunos están experimentando con maridajes de sabores internacionales y métodos de cocción alternativos para reinventar este plato clásico, manteniendo su esencia pero aportando un toque innovador.
 
 **Hornado y Turismo Gastronómico:** El hornado se ha convertido en una atracción destacada en el turismo gastronómico ecuatoriano. Restaurantes y ferias locales destacan este plato en su oferta para visitantes, ofreciendo una experiencia auténtica de la cocina andina. Su popularidad entre los turistas ha ayudado a preservar y promover las tradiciones culinarias de la región, convirtiéndolo en un símbolo de la rica herencia gastronómica de Ecuador.
+
+[Video tutorial de la preparación del hornado](https://www.youtube.com/watch?v=wWzDb8uB6wo)
