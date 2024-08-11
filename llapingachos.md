@@ -21,3 +21,5 @@ En la gastronomía moderna, los llapingachos han sido reinterpretados por chefs 
 
 **Llapingachos y Turismo Gastronómico:**
 Los llapingachos han ganado popularidad no solo en Ecuador, sino también entre los turistas que buscan experimentar la autenticidad de la cocina andina. Este plato se ha convertido en un símbolo culinario en los mercados y festivales gastronómicos, donde los visitantes pueden disfrutar de su sabor y conocer la rica tradición que lo rodea. Además, ha sido promocionado en rutas de turismo gastronómico, permitiendo a los turistas descubrir la diversidad y riqueza de la comida ecuatoriana.
+
+[Video tutorial de la preparación del llapingacho](https://www.youtube.com/watch?v=Un7WxYDq_4c)
