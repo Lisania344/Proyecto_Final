@@ -15,3 +15,5 @@ El nombre del plato proviene del uso destacado de la cebolla roja, que se macera
 **Innovaciones y Nuevas Interpretaciones:** Los chefs contemporáneos están reinventando el encebollado al incorporar ingredientes *gourmet* y técnicas modernas. Algunos experimentan con diferentes tipos de pescado, como el salmón, y presentan el plato con toques innovadores, como espuma de cebolla o salsas *exóticas*. Estas adaptaciones buscan elevar el plato tradicional a nuevas alturas culinarias.
 
 **Encebollado y Turismo Gastronómico:** El encebollado ha ganado popularidad entre los turistas que buscan experiencias auténticas de la cocina ecuatoriana. En las regiones costeras, es común encontrarlo en restaurantes que ofrecen el plato como parte de un menú que celebra la rica tradición culinaria del país. Esta creciente fama contribuye a la promoción del encebollado como un ícono de la gastronomía ecuatoriana en el ámbito internacional.
+
+[Video tutorial de la preparación del encebolado](https://www.youtube.com/watch?v=AhJpRnQqcVs&t=52s)
