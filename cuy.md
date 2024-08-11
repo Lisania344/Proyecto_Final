@@ -12,7 +12,7 @@ Este plato no solo es apreciado por su sabor único, sino también por su alto v
 
 El cuy asado es, por tanto, mucho más que un alimento; es una manifestación de la identidad cultural de los pueblos andinos, un vínculo entre el pasado y el presente que ha resistido el paso del tiempo y continúa siendo un platillo central en la mesa de muchas familias de la Sierra ecuatoriana y otras regiones de los Andes.
 
-## Valor Nutricional
+## 1. Valor Nutricional
 
 **Composición nutricional:** 
 a diferencia de otras carnes rojas, el cuy tiene un bajo contenido de grasa, lo que lo hace más saludable y fácil de digerir. Además, es rico en ácidos grasos *omega-3*, conocidos por sus beneficios para la salud cardiovascular.
@@ -22,7 +22,7 @@ El cuy es también una fuente significativa de vitaminas y minerales esenciales,
 **Beneficios para la salud:** 
 su digestibilidad lo hace adecuado para personas con dietas sensibles o que buscan reducir la ingesta de grasas saturadas. Además, al ser una carne de bajo impacto ecológico, su consumo también se alinea con tendencias modernas hacia dietas más sostenibles y éticas.
 
-## El Cuy en la Gastronomía Moderna
+## 2. El Cuy en la Gastronomía Moderna
 **Innovaciones e Interpretaciones:** en la gastronomía moderna, el cuy ha encontrado su lugar en menús de alta cocina, donde chefs innovadores reinterpretan este plato tradicional con técnicas contemporáneas. Desde presentaciones *gourmet* en restaurantes de lujo hasta versiones fusionadas con ingredientes internacionales, el cuy está siendo redescubierto como un ingrediente versátil y sofisticado.
 
 **Cuy y Turismo Gastronómico:** el cuy asado se ha convertido en un atractivo para el turismo gastronómico en la región andina. Los turistas buscan experiencias auténticas y el cuy, con su rica historia y sabor único, ofrece una inmersión cultural profunda. Muchos viajeros incluyen en su itinerario la degustación de cuy, viendo en este plato no solo una comida, sino una oportunidad para conectarse con la cultura local.
