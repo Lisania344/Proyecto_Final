@@ -26,3 +26,5 @@ Su digestibilidad lo hace adecuado para personas con dietas sensibles o que busc
 **Innovaciones e Interpretaciones:** En la gastronomía moderna, el cuy ha encontrado su lugar en menús de alta cocina, donde chefs innovadores reinterpretan este plato tradicional con técnicas contemporáneas. Desde presentaciones *gourmet* en restaurantes de lujo hasta versiones fusionadas con ingredientes internacionales, el cuy está siendo redescubierto como un ingrediente versátil y sofisticado.
 
 **Cuy y Turismo Gastronómico:** El cuy asado se ha convertido en un atractivo para el turismo gastronómico en la región andina. Los turistas buscan experiencias auténticas y el cuy, con su rica historia y sabor único, ofrece una inmersión cultural profunda. Muchos viajeros incluyen en su itinerario la degustación de cuy, viendo en este plato no solo una comida, sino una oportunidad para conectarse con la cultura local.
+
+[Video tutorial de la preparación del cuy asado](https://www.youtube.com/watch?v=RiyulQCtgs4)
